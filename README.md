@@ -49,8 +49,8 @@
 
 ## 📫 Me contacter
 
-📩 **Email** : [Ajoute ton email ici]  
-🌐 **Portfolio** : [Ajoute ton site ici]  
+📩 **Email** : samuel.lolio03@gmail.com  
+🌐 **Portfolio** : En construction !
 💬 **LinkedIn** : [Ajoute ton LinkedIn ici]  
 
 ⭐ **N'hésite pas à suivre mon travail et à me contacter !** 😃🚀
