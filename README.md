@@ -51,6 +51,6 @@
 
 📩 **Email** : samuel.lolio03@gmail.com  
 🌐 **Portfolio** : En construction !
-💬 **LinkedIn** : [Ajoute ton LinkedIn ici]  
+💬 **LinkedIn** : https://www.linkedin.com/in/samuel-lolio/ 
 
-⭐ **N'hésite pas à suivre mon travail et à me contacter !** 😃🚀
+⭐ **N'hésite pas à me contacter !** 😃🚀
