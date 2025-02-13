@@ -1,4 +1,4 @@
-# 👋 Salut, moi c'est Samoualh ! 🚀
+# 👋 Salut, moi c'est Sam ! 🚀
 
 🎓 Étudiant en 2ᵉ année d'informatique, passionné par le développement web et les nouvelles technologies.  
 💻 J'adore apprendre, expérimenter et construire des projets innovants.  
